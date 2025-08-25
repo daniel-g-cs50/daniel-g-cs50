@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @daniel-g-cs50
 - 👀 I’m interested in computers, electronics, and lighting
 - 🌱 I’m currently taking CS50
-- 📫 How to reach me ... aat dgooch236@gmail.com
+- 📫 How to reach me ... aat [email redacted because of a scam targeting me]
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I have cochlear implants
 
